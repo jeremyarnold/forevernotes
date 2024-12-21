@@ -1,0 +1,15 @@
+ [[✱ JANUARY]]
+
+> [!NOTE]+ DATES
+> [ 01 ] | [[02 JANUARY|02]] | [[03 JANUARY|03]] | [[04 JANUARY|04]] | [[05 JANUARY|05]] | [[06 JANUARY|06]] | [[07 JANUARY|07]] | [[08 JANUARY|08]] | [[09 JANUARY|09]] | [[10 JANUARY|10]] | [[11 JANUARY|11]] | [[12 JANUARY|12]] | [[13 JANUARY|13]] | [[14 JANUARY|14]] | [[15 JANUARY|15]]
+> [[16 JANUARY|16]] | [[17 JANUARY|17]] | [[18 JANUARY|18]] | [[19 JANUARY|19]] | [[20 JANUARY|20]] | [[21 JANUARY|21]] | [[22 JANUARY|22]] | [[23 JANUARY|23]] | [[24 JANUARY|24]] | [[25 JANUARY|25]] | [[26 JANUARY|26]] | [[27 JANUARY|27]] | [[28 JANUARY|28]] | [[29 JANUARY|29]] | [[30 JANUARY|30]] | [[31 JANUARY|31]]
+
+> [!INFO]- Whats Happening?
+> Anniversaries or Birthdays? 
+> - New Years Day
+> - [WP : 1st January](https://en.wikipedia.org/wiki/January_1)
+
+## YEARS
+### 2025
+
+### 2026
