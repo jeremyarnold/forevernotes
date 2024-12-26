@@ -1,4 +1,4 @@
- [[✱ HOME]] | [[✱ JOURNAL]] | [[✱ Q3]]
+ [[✱ HOME]] | [[✱ JOURNAL]] | [[✱ Q2]]
 
 > [!NOTE]+ DATES
 > LAST MONTH : [[✱ MARCH]]
