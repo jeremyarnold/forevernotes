@@ -8,3 +8,4 @@
 > [[✱ JULY]] | [[✱ AUGUST]] | [[✱ SEPTEMBER]] | [[✱ OCTOBER]] | [[✱ NOVEMBER]] | [[✱ DECEMBER]]
 
 
+**What is the ✱HOME page?** https://www.myforevernotes.com/docs/home 
