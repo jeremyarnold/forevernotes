@@ -6,3 +6,4 @@
 > [[✱ Q3]] > [[✱ JULY]] | [[✱ AUGUST]] | [[✱ SEPTEMBER]]
 > [[✱ Q4]] > [[✱ OCTOBER]] | [[✱ NOVEMBER]] | [[✱ DECEMBER]]
 
+**What is the ✱JOURNAL?** https://www.myforevernotes.com/docs/journal
