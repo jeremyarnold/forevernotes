@@ -7,7 +7,7 @@ Are you looking for a markdown focused Forever✱Notes?
 
 As someone fully part of the Apple Ecosystem, I am being asked by the company I work for to stop using by Apple-ID on my corporate macbook, and as such I moving away from Apple apps when it comes to work. 
 
-I'm moving away from Apple Notes to Obsidian.md , but still wanted to use the Forever✱notes framework. 
+Where? Leaving Apple Notes and moving to Obsidian.md stored on onedrive, but still wanted to use the Forever✱notes framework. 
 
 I created this for others to simply download. 
 # Enjoy
